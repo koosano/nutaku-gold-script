@@ -1,1 +1,0 @@
-# nutaku-gold-script
